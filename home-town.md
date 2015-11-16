@@ -1,3 +1,3 @@
 Welcome to my Home Town
 
-_Montpellier, France
+_Montpellier, France, Europe
